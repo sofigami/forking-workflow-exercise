@@ -17,6 +17,7 @@
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
+- **1/2 kg** minced meet (beef)
 - **Fresh basil** for garnish (optional)
 
 
@@ -33,7 +34,7 @@
    - Remove from heat and set aside.
 
 3. **Mix Cheeses:**
-   - In a bowl, mix together the ricotta cheese, egg, half of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
+   - In a bowl, mix together the ricotta cheese, egg, 1/3 of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
 
 4. **Assemble Lasagna:**
    - Spread a thin layer of marinara sauce over the bottom of the baking dish.
